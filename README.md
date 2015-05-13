@@ -4,4 +4,4 @@ viele tolle Kreise für 5 Bezirke meiner Wahl
 
 Einfach runterladen, öffen, staunen
 
-Tschüßi
+Tschüßi & Kowski
